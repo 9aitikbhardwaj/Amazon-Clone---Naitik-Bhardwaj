@@ -1,1 +1,1 @@
-# Amazon-Clone---Naitik-Bhardwaj
+# Amazon-Clone-Naitik-Bhardwaj
